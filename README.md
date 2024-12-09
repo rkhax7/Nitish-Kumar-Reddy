@@ -16,8 +16,6 @@ Nitish Kumar Reddy, a promising all-rounder in Indian cricket, has quickly risen
 
 [Nitish’s net worth](https://yupbeat.com/news/nitish-kumar-reddy/) is estimated to be between **INR 1 million to INR 5 million**, primarily from his cricketing contracts and endorsements. His journey from grassroots cricket to international recognition reflects his dedication and talent​
 
-[Biography Adda](https://biographyadda.com/nitish-kumar-reddy-biography/)
-
 ​
 
 [Crictoday](https://crictoday.com/cricket/series/nitish-kumar-reddy/)
